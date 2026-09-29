@@ -15,7 +15,7 @@ my researches (e.g. math) can take a long time to be serious or mature enough to
 
 however, I still need money to live in this world. so I would appreciate it if you are willing to sponsor my researches and my life. I may spend the money on a coffee, a lunch, a book, or supporting other artists I love (they are great! you can also check out my wishlists below). every dollar is meaningful and will be highly appreciated.
 
-I may post a few drafts of my immature work on the website, you can check if you're interested or if that would be a good reason to sponsor me. currently you can sponsor me at https://afdian.com/a/shiitakenenene (support WeChat and Alipay).
+I may post a few drafts of my immature work on the website, you can check if you're interested or if that would be a good reason to sponsor me. currently you can sponsor me at [afdian](https://afdian.com/a/shiitakenenene) (support WeChat and Alipay).
 
 huge THANKS for reading this and have a nice day :)
 
