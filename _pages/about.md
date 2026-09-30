@@ -22,10 +22,11 @@ huge THANKS for reading this and have a nice day :)
 wishlists
 ======
 * buy paper textbooks (currently reading: [A. Weibel] An Introduction To Homological Algebra)
-* buy my favorite artists' selling collections (I’m currently making copies of them)
+* buy my favorite artists' art selling collections (I’m currently making copies of them)
 * my Steam wishlists (last game played: Z.A.T.O. I Love This World And Every Thing In It)
 * buy a controller (maybe also a serious new pc)
 * buy a guitar
 * buy a photographer
 * travelling (ideal destination: Japan and Sweden)
+* buy a house
 * free my life, meaning there is no more need for me to meet anybody, neither their faces nor their expectations. (this could cost a lot, but I think it would be enough if each of the top 25% richest people in the world sponsors me a dollar)
