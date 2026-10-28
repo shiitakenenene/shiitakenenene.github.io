@@ -23,7 +23,7 @@ wishlist
 ======
 * buy paper textbooks (currently reading: [A. Weibel] An Introduction To Homological Algebra)
 * buy my favorite artists' art selling collections (I’m currently making copies of them)
-* my Steam wishlists (last game played: deltarune)
+* my Steam wishlist (last game played: deltarune)
 * buy a controller (maybe also a serious new pc)
 * buy a guitar
 * buy a photographer
